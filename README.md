@@ -1,4 +1,4 @@
-# Hi I'm **Juan Ribeiro Rodrigues**
+# Hi, I'm **Juan Ribeiro Rodrigues**
 
 
 
